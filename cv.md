@@ -1,4 +1,4 @@
-Yauhen Shakhniuk (Евгений Шахнюк) 
+Yauhen Shakhniuk
 DOB: 10.04.1986
 
 Employee’s Overview:
